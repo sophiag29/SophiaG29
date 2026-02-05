@@ -1,4 +1,6 @@
-## Hi there 👋
+## Sophia HERE SAYING HI!
+
+I CAN DO STUFFS LIKE A UPSTANDING CITIZEN OF THE COSMOS
 
 <!--
 **sophiag29/SophiaG29** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
