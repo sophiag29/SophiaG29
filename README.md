@@ -2,6 +2,13 @@
 
 I CAN DO STUFFS LIKE A UPSTANDING CITIZEN OF THE COSMOS
 
+I LOVE MY MOM
+I LOVE HELKEE
+I LOVE ALASKA MEOW
+I LOVE CHIHIRO
+I LOVEEEE STEPHEN
+
+
 <!--
 **sophiag29/SophiaG29** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
