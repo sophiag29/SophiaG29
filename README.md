@@ -8,7 +8,7 @@ I LOVE ALASKA MEOW
 I LOVE CHIHIRO
 I LOVEEEE STEPHEN
 
-
+I go by Sophia G20 or Punk_Mexican_loser_chick or G29 or Sophia G30 it depends on what I am doing. I could be on the interet all day just building and that would make me HAPPY
 <!--
 **sophiag29/SophiaG29** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
